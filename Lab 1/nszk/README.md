@@ -1,2 +1,0 @@
-# nszk
- jnsj
